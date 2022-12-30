@@ -1,0 +1,2 @@
+ARTICULO 57°: Comuníquese, dése razón al Departamento Ejecutivo, insértese en el Registro Oficial y cumplido, archívese.
+DADA EN LA ASAMBLEA DE CONCEJALES Y MAYORES CONTRIBUYENTES DEL DISTRITO DE PELLEGRINI, A LOS QUINCE DIAS DEL MES DE DICIEMBRE DEL AÑO DOS MIL VEINTIDÓS.

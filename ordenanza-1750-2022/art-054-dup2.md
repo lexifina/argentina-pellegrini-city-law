@@ -1,0 +1,3 @@
+ARTICULO 54º: Por la impresión y distribución de cada boleta/recibo de tributo municipal:
+Dentro de la localidad ………………………………...$ 100,00
+Fuera de la localidad ..………………………………..$ 200,00

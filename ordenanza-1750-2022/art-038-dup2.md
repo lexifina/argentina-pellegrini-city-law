@@ -1,0 +1,2 @@
+ARTICULO 38º: Facultase al Departamento Ejecutivo a conceder autorización para el pago de los derechos fijados por la presente tasa, hasta en diez (10) cuotas mensuales, iguales y consecutivas, cuando por razones justificadas así lo soliciten.
+Al capital a amortizar se le adicionará un interés que determinará el Departamento Ejecutivo, cuya tasa no podrá exceder la que establece el Banco de la Provincia de Buenos Aires para operaciones de descuento a treinta (30) días.

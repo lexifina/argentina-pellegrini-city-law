@@ -1,0 +1,1 @@
+ARTICULO 35º: Tasa Especial - Zona Interurbana - El monto de la tasa para los inmuebles cuya superficie sea inferior a diez (10) hectáreas se fija por hectárea y por año en pesos dos mil doscientos treinta y cinco ($ 2.235,00).

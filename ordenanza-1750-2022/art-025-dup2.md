@@ -1,0 +1,10 @@
+ARTICULO 25º: Los Derechos a Espectáculos Públicos, a que se refiere la Ordenanza Fiscal, quedan fijados de acuerdo a las tasas que se determinan a continuación:
+Por cada permiso para la realización de cualquier espectáculo público, se cobre o no derecho en concepto de entrada, por reunión..................................................$ 1.330,00
+Por cada permiso para realizar almuerzos, cenas, fiestas o similares a realizarse en salones, se abonará el equivalente a cinco (5) entradas, tarjetas o denominación similar de mayor valor.
+Por la realización de espectáculos deportivos, se abonará el equivalente a cinco (5) entradas, tarjetas o denominación similar de mayor valor.
+Realización de bailes, festivales, recitales y/o similares se abonará el equivalente a cinco (5) entradas, tarjetas o denominación similar de mayor valor.
+Confiterías, restaurantes, bares y/ similares que presenten espectáculos, por día de espectáculo..................................................................................$ 2.700,00
+Parque de diversiones por día o fracción.....................................$ 2.700,00
+Por la realización de espectáculos teatrales o circenses, el equivalente a cinco (5) entradas de mayor valor por día o fracción. Por la realización de carreras cuadreras, domas y/o exposiciones de habilidades de animales de raza debidamente autorizadas, el equivalente a cinco (5) entradas de mayor valor por día o fracción.
+Todo espectáculo, cualquiera fuera su naturaleza, no previsto precedentemente, por día o fracción ………………...............................................................................$ 1.330,00
+Los derechos del presente capítulo no incluyen los que pudieren corresponder en concepto de Tasa por Inspección de Seguridad e Higiene.
