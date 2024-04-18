@@ -1,0 +1,16 @@
+Ordenanza Nº1827/2024
+Ordenanza Nº 1827/2024
+Pellegrini, 21/03/2024
+El Convenio 009-169/19 suscripto con el Instituto de la Vivienda de la Provincia de Buenos Aires; el Decreto local N° 2087/2022 por el que se adjudican dieciocho (18) viviendas, primera etapa, del Plan Solidaridad - Programa Bonaerense II, lo contenido en el Expediente N° 4086-0432/2021, el Decreto 211/2024; y,
+Que el Instituto de la Vivienda de la Provincia de Buenos Aires (IVBA), conforme al convenio citado en Visto, procedió a financiar la construcción de dieciocho (18) viviendas correspondientes a la primera etapa del Plan Solidaridad - Programa Bonaerense II, certificando el importe financiado total en un millón cuarenta y ocho mil ciento diecinueve coma once (1.048.119,11) Unidades de Vivienda (UVIs), lo que arroja la cantidad de cincuenta y ocho mil doscientos veintiocho coma ochenta y cuatro (58.228,84) Unidades de Vivienda (UVIs) por vivienda.
+Que el mencionado importe se actualiza periódicamente por el Coeficiente de Variación Salarial (CVS), por lo que habiéndose procedido a la adjudicación con fecha 22 de noviembre de 2022, por lo que la liquidación del Instituto de la Vivienda de la Provincia de Buenos Aires (IVBA) abonada el 30 de septiembre de 2023 contempla una variación del Coeficiente de Variación Salarial (CVS) del ciento sesenta y cinco coma treinta y nueve por ciento (165,39%), resultando el costo de la construcción de pesos catorce millones quinientos treinta y cuatro mil trescientos uno ($14.534.301), conforme emerge del informe del Área de Ingresos Públicos.
+Que el valor de la vivienda lo integra además el terreno que fue aportado por el Municipio y que de acuerdo a la Ordenanza N° 1490/2019 se fija en quince (15) sueldos de la Categoría 20 para treinta (30) horas, resultando la base de cálculo de pesos ciento cuatro mil uno ($104.001), arrojando un valor por unidad de pesos un millón quinientos sesenta mil dieciséis ($1.560.016).
+Que de acuerdo a las bases informadas y las variaciones del Coeficiente de Variación Salarial (CVS) en el período octubre de 2022 al mes de septiembre de 2023, debe fijarse
+el monto de la vivienda en dieciocho millones novecientos veintiséis mil setenta y siete con noventa centavos ($18.926.077,90), monto que se compone de trescientas sesenta (360) cuotas de pesos cincuenta y dos mil quinientos setenta y dos ($52.572), cada una.
+Que desde el Área de Ingresos Públicos se procede a la apertura del Expediente N° 4086-0039-2024, con el objeto gestionar dentro del mismo las actualizaciones periódicas correspondientes.
+Que el Departamento Ejecutivo fijó, ad-referéndum del Honorable Concejo Deliberante, el valor de la vivienda y de las cuotas que deben abonar los adjudicatarios, mediante el Decreto N° 0211/23.
+Que resulta necesaria la intervención del Honorable Concejo Deliberante a los efectos de convalidar el marco normativo para el recupero de la inversión de las viviendas adjudicadas correspondientes a la primera etapa del Plan Solidaridad - Programa Bonaerense II, promoviendo el fortalecimiento de los fondos para la construcción de viviendas
+EL HONORABLE CONCEJO DELIBERANTE DEL DISTRITO DE PELLEGRINI,
+sanciona la siguiente:
+ORDENANZA N° 1827/2024
+ORDENANZA
