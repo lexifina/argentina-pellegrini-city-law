@@ -1,0 +1,1 @@
+ARTICULO 49º: Por el servicio de logística de recolección y transporte de residuos patológicos a municipios se cobrará de manera mensual lo estipulados según convenio firmado entre los municipios. La autorización para la firma de este convenio será brindada por el Honorable Concejo Deliberante.
