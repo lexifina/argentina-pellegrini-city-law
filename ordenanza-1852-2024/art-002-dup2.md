@@ -1,0 +1,2 @@
+ARTÍCULO 2°: Comuníquese, dése razón al Departamento Ejecutivo, insértese en el Registro Oficial y cumplido, archívese.
+DADA EN LA SALA DE SESIONES DEL HONORABLE CONCEJO DELIBERANTE DEL DISTRITO DE PELLEGRINI, A LOS ONCE DÍAS DEL MES DE JULIO DEL AÑO DOS MIL VEINTICUATRO.
