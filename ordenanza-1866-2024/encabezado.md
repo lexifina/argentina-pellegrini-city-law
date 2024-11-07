@@ -1,0 +1,11 @@
+Ordenanza Nº1866/2024
+Ordenanza Nº 1866/2024
+Pellegrini, 17/10/2024
+El ofrecimiento efectuado a la Municipalidad de Pellegrini por Valeria Balzarotti y el Expediente Administrativo N° 4086-0224/24; y,
+Que el mismo consiste en la donación con cargo a favor de la Municipalidad de Pellegrini, de las partes indivisas que le corresponden a Valeria Balzarotti, sobre el inmueble de su propiedad designado catastralmente como: Circunscripción I, Sección B, Quinta 63, Parcela 2, Partida N° 4027, Matrícula 6747, del Partido de Pellegrini (81);
+Que la oferta de donación se realiza a la Municipalidad con los siguientes cargos: a) Gestionar la aprobación y registro del plano de subdivisión en ciento cuarenta (140) lotes, conforme anteproyecto de urbanización que en croquis se adjunta a la presente (ANEXO I), en donde se indican los lotes que corresponderán a cada una de las partes; b) Transferir, una vez aprobado y registrado, a título gratuito a la Señora Valeria Balzarotti, cuarenta y cuatro (44) lotes, según esquema citado en los apartados precedentes. Los gastos y honorarios -de corresponder- que impliquen la transferencia, estarán a cargo de la Municipalidad, la que gestionará mediante Escribanía General de Gobierno y/o Escribano particular; c) Realizar las obras de infraestructura y tareas consistentes en: plano de mensura y subdivisión, apertura de calles de la totalidad del inmueble conforme croquis, red cloacal, red de agua corriente domiciliaria, alumbrado público, red eléctrica domiciliaria, cordón cuneta y cordón simple; d) Hacerse cargo exclusivamente la Municipalidad a partir de la fecha del registro del plano de subdivisión y mensura de las tasas municipales e impuestos provinciales (inmobiliario) correspondiente a los noventa y seis (96) lotes según esquema del ANEXO I; e) Tramitar ante las autoridades provinciales la zonificación que corresponda a los fines de materializar el anteproyecto – ANEXO I-
+Que los lotes cuya propiedad quedaría para la Municipalidad compensaría los cargos impuestos a la misma;
+Que dicho ofrecimiento resulta conveniente a los efectos urbanísticos, económicos y sociales, y corresponde al Departamento Deliberativo pronunciarse sobre la oferta recibida;
+ORDENANZA
+EL HONORABLE CONCEJO DELIBERANTE DEL DISTRITO DE PELLEGRINI,
+sanciona la siguiente ORDENANZA N° 1866/2024
