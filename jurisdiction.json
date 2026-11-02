@@ -1,0 +1,11 @@
+{
+  "path": "ar-b-pellegrini",
+  "code": "AR-B-PELLEGRINI",
+  "name": "Pellegrini",
+  "level": "municipality",
+  "parent": "ar-b",
+  "repo": "https://github.com/lexifina/argentina-pellegrini-city-law",
+  "build": "built: municipal ordinances (201 ordinances, 201 versions) from https://sibom.slyt.gba.gob.ar/cities/94",
+  "language": "es",
+  "sources": 1
+}
